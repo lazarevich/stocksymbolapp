@@ -1,1 +1,1 @@
-## Stock Symbol Appp
+## Stock Symbol App
